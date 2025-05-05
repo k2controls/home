@@ -1,1 +1,1 @@
-![alt text](RiverAndKayaksWithText.png)
+![aay 25, 2025 - River Ridge Picnic](May25RiverRidgePicnic.png)
